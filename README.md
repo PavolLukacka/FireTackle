@@ -1,2 +1,2 @@
 # FireTackle
-Game for Hosťovacky
+Game for Hosťovacky Aleš

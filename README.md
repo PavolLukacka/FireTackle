@@ -1,2 +1,3 @@
 # FireTackle
-Game for Hosťoplacky
+Game for Hosťoplacky pppplsdfs gd
+dhfds
